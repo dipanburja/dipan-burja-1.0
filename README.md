@@ -1,1 +1,1 @@
-# dipan-first-project
+I am an aspiring cybersecurity professional with a strong interest in protecting digital systems and data. My background in IT and ongoing training in cybersecurity fundamentals have given me a solid foundation in security principles, risk management, and incident response. I’m passionate about solving problems, working with integrity, and continuously learning. I look forward to contributing to a team where I can help strengthen security and grow in this evolving field."
